@@ -1,5 +1,5 @@
 - 👋 Olá me chamdo Washington Sabino.
-- 👀 Gosto muito de: estudar (CDF que chamava?), ler livros (ficção científica tem sido os mais legais), compartilhar conhecimento (sou professor) e atuar com Finanças (minha maior experi~encia profissional).
+- 👀 Gosto muito de: estudar (CDF que chamava?), ler livros - tenho mais de 600 no momento (ficção científica tem sido os mais legais), compartilhar conhecimento (sou professor) e atuar com Finanças (minha maior experi~encia profissional).
 - 🌱 Estou aprendendo sobre Ciencia de dados, automacao de processo s(RPA e inteligencia artificial sempre pensando na pratica em rotinas de departamento Financeiro.
 - 💞️ Meu objetivo é compartilhar conhecimento, aprender trocando conhecimento.
 - 📫 Facil me encontrar pelo LinkedIn: www.linkedin.com/in/washington-sabino-w2s, Instagram: https://www.instagram.com/washsabino
